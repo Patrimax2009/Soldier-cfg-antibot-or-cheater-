@@ -1,0 +1,1 @@
+# Soldier-cfg-antibot-or-cheater-
